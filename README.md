@@ -81,7 +81,7 @@ The Power BI report includes:
 **Diana Paulina Tornero Garnica**  
 Aspiring Data Analyst | Mexico 🇲🇽  
 🧠 Self-taught | 🎯 Portfolio Project – 2025  
-🔗 [LinkedIn](https://www.linkedin.com/) *(Insert your profile link)*  
+🔗 (www.linkedin.com/in/paulina-tornero-322b3b33b) 
 
 ---
 
